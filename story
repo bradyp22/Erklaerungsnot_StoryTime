@@ -1,2 +1,3 @@
 The old hund was driving his porsche along the Hauptstrasse when he spotted a Biergarten near the walk.
-He started to salivate when he saw that it served Doener 
+He started to salivate when he saw that it served Doener.
+So the hund pulled over, and the scents overtook him; Doener, Bratwurst, Apfelkuchen. "I must have them all!", he thought.
