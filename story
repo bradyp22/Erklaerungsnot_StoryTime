@@ -6,3 +6,4 @@ Finishing up, he wanted to walk into the Ratskeller to learn about making Bier i
 It is always nice to wear my lederhose in the winter.
 The Klimaanlage also has to be set to super hot or else I get chilly.
 My mom and I always loved to listen to the Rammstein in concert.
+The best part of the concerts were the Bratwursts and a stein.
